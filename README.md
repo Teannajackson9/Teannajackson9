@@ -1,4 +1,4 @@
-### Hi there 👋
+### I'm website designer and I can help you program any sort of stuff you really wish too do hun. Coding is also my abit 
 
 <!--
 **Teannajackson9/Teannajackson9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
